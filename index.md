@@ -1,5 +1,5 @@
-# gitbook
-# [https://juzisan.pythonanywhere.com/](https://juzisan.pythonanywhere.com/) short [https://bit.ly/3UROKJl](https://bit.ly/3UROKJl)
+# 缩短域名 [https://Link.Gallery/juzi](https://Link.Gallery/juzi)
+# gitbook 个人博客 [https://juzi3san.gitbook.io/ge-ren-bo-ke/](https://juzi3san.gitbook.io/ge-ren-bo-ke/)
+# 收藏夹 [https://rebrand.ly/9lduzuy](https://rebrand.ly/9lduzuy)
 # [https://www.juzi23.shop/](https://www.juzi23.shop/)
-# [https://bit.ly/m/juzi](https://bit.ly/m/juzi) 免费短域名好记
 # 这样域名就不会丢掉了
